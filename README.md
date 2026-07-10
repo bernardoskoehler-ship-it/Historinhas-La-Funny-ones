@@ -1,1 +1,3 @@
 # Historinhas-La-Funny-ones
+
+Certo dia um jovem chamda Malfoy entrou em um templo maçônico com a espada de seu avô, a qual o mesmo dizia que seu antepassado havia matado judêus com a espada. Quando chegou ao templo, foi recebido por vários jovens da mesma faixa etária, chamados: DeMolays, eles perguntaram sobre o significado da espada que estava carregando, e então respondeu: "A espada de matar judêus do meu avô". Após tal comentário absurdo todos foram para cima do jovem Malfoy e deram um belo cuecão nele, foi o cuecão mais INSANO de todos os tempo, ele foi elevado até a altura do teto - encostando a cabeça - e por fim... teve sua cueca resgada e sua dignidade retirada.
